@@ -1,1 +1,1 @@
-[![](http://www.textfiles.com/underconstruction/HeHeartlandValley1469underconstruction2.gif)](https://dylanpyle.com)
+[![](https://www.free-website-hit-counter.com/c.php?d=9&id=129010&s=288)](https://dylanpyle.com)
